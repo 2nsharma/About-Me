@@ -37,7 +37,9 @@ I am only on instagram, and my account name is 'whynotbcihatesnakeu.'
 
 ![Playing Tennis](https://images.unsplash.com/photo-1558365849-6ebd8b0454b2?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
-I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is where you brush your racket along the side, effectively changing the spin and bounce of the ball. Here is an example:
+I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is where you brush your racket along the side, effectively changing the spin and bounce of the ball. 
+
+Here is an example:
 
 ![Slice move](https://media1.tenor.com/images/6251acbca0a00ee292544cebd3293e40/tenor.gif?itemid=18657032)
 
@@ -56,7 +58,7 @@ I have gotten into baking different kinds of cakes of varying flavors. I have tr
 
 For cookies, I have only tried vanilla, nutmeg, coconut chocolate-chip, and lemon cookies. I want to try different cookies, of course (who wouldn't?), perhaps M&M cookies or macaron cookies. 
 
-![M&M Cookies](https://images.unsplash.com/photo-1590080875897-b7b65b2f73d7?ixlib=rb 1.2.1&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1384&q=80)
+![M&M cookies](https://images.unsplash.com/photo-1590080875897-b7b65b2f73d7?ixlib=rb 1.2.1&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1384&q=80)
 
 ![Macaron Cookies](https://images.unsplash.com/photo-1597905733802-7bec89b471b6ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=2250&q=80)
 
