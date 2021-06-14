@@ -57,4 +57,4 @@ For cookies, I have only tried vanilla, nutmeg, coconut chocolate-chip, and lemo
 
 ### Thank you for reaching the end!
 
-Thank you for reading this page about me! I hope my writing hasn't been interesting, but rather, an interesting outlook on me.
+Thank you for reading this page about me! I hope my writing has not been too much to read, but rather, an interesting outlook about me.
