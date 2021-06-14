@@ -7,6 +7,7 @@ The school year is soon ending, summer is arriving and finally, my junior year o
 
 
 ###                                                     Who Am I? Some Random Facts!
+![Who am I?](https://images.unsplash.com/photo-1554497342-902a4f8da8ed?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=3900&q=80)
 
 I am a _perfectionist_ at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is a year when I have been learning to get in touch with myself. 
 
@@ -60,8 +61,8 @@ For cookies, I have only tried vanilla, nutmeg, coconut chocolate-chip, and lemo
 
 ![Macaron cookies](https://images.unsplash.com/photo-1528503908550-8a048b6b4312?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
-**On an abrupt ending note, this is me**
-![Me](https://images.unsplash.com/photo-1554497342-902a4f8da8ed?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=3900&q=80)
+- **On an abrupt ending note, this is me**
+![Me](![image](https://user-images.githubusercontent.com/84788749/121844425-fbc1ec80-ccb1-11eb-9221-8dd826ad5436.png))
 
 ### Thank you for reaching the end!
 
