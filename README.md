@@ -60,8 +60,8 @@ For cookies, I have only tried vanilla, nutmeg, coconut chocolate-chip, and lemo
 
 ![M&M cookies](https://images.unsplash.com/photo-1590080875897-b7b65b2f73d7?ixlib=rb 1.2.1&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1384&q=80)
 
-![Macaron cookies](https://images.unsplash.com/photo-1597905733802-7bec89b471b6ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=2250&q=80)
+![Macaron cookies](https://images.unsplash.com/photo-1528503908550-8a048b6b4312?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
 ### Thank you for reaching the end!
 
-Thank you for reading this page about me! I hope my writing has not been too much to read, but rather, an interesting outlook about me.
+_Thank you for reading this page about me! I hope my writing has not been too much to read, but rather, an interesting outlook about me._
