@@ -5,7 +5,9 @@ Hello! My name is Nayana Sharma and I am a junior at EBHS high school! I am exci
 
 The school year is soon ending, summer is arriving and finally, my junior year of high school is coming to a close. A new chapter is opening up in my life, but first -- this website will detail my accomplishments and hobbies-- and more about me!
 
+
 ###                                                     Who Am I? Some Random Facts!
+![image](https://user-images.githubusercontent.com/84788749/121834213-2ef98100-cc9c-11eb-8852-9afc370e5165.png)
 
 I am a perfectionist at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is a year when I have been learning to get in touch with myself.
 
