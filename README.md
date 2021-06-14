@@ -62,7 +62,7 @@ For cookies, I have only tried vanilla, nutmeg, coconut chocolate-chip, and lemo
 ![Macaron cookies](https://images.unsplash.com/photo-1528503908550-8a048b6b4312?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
 - **On an abrupt ending note, this is me**
-![Me](![image](https://user-images.githubusercontent.com/84788749/121844425-fbc1ec80-ccb1-11eb-9221-8dd826ad5436.png))
+![Me](https://static.wixstatic.com/media/ff19a8_6f5c601ad22845f784b257dc77d539bc~mv2.jpg/v1/fill/w_407,h_242,al_c,q_80,usm_0.66_1.00_0.01/IMG_0634_edited_edited.webp)
 
 ### Thank you for reaching the end!
 
