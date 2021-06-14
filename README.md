@@ -3,9 +3,6 @@
 
 Hello! My name is Nayana Sharma and I am a junior at EBHS high school! I am excited to talk about myself so you can know me better!
 
-                                                             This is **me!**
-![Me](https://user-images.githubusercontent.com/84788749/121830518-36685c80-cc93-11eb-9591-1074c6130d1e.png) 
-
 The school year is soon ending, summer is arriving and finally, my junior year of high school is coming to a close. A new chapter is opening up in my life, but first -- this website will detail my accomplishments and hobbies-- and more about me!
 
 ###                                                     Who Am I? Some Random Facts!
@@ -39,10 +36,8 @@ This is **me!**
 
 
 
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/2nsharma/About-Me/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
+### This is **me!**
+![Me](https://user-images.githubusercontent.com/84788749/121830518-36685c80-cc93-11eb-9591-1074c6130d1e.png) 
 ### Support or Contact
 
 Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
