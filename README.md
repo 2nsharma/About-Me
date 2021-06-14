@@ -1,19 +1,17 @@
-## Welcome to GitHub Pages
+## Welcome to the About Me Website! 
 
-You can use the [editor on GitHub](https://github.com/2nsharma/About-Me/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Hello! My name is Nayana Sharma! I am excited to tlak about myself, so you can know me better!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+The school year is soon ending, summer is arriving and finally, my junior year of  high school is coming to a close. A new chapter is opening up in my life, but first -- this website will detail my accomplishments and hobbies-- and more about me!
+### Who am I?
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
+My name is Nayana and I am a junior at EBHS high school. I am a perfectionist at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is the time when I have been learning to get in touch with myself.
 ```markdown
 Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
+# Who Am I?
+## A Picture of Me!
+### Social Media Information
 
 - Bulleted
 - List
