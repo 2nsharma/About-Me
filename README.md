@@ -7,11 +7,10 @@ The school year is soon ending, summer is arriving and finally, my junior year o
 
 ###                                                     Who Am I? Some Random Facts!
 
-I am a perfectionist at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is the time when I have been learning to get in touch with myself.
+I am a perfectionist at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is a year when I have been learning to get in touch with myself.
 
 I am a homebody, which I why home is my favorite place in the world. I dislike traveling for that very reason--especially trips involving long car rides and flights via airplanes. At home, when the skies are dark and filled with rainy clouds, the sounds of thunder rumble as rain patters on my bedroom windows-- I feel like I am at peace. I absolutely love rain, contrary to the dreary, misery, as well as melancholy associated with rain showers.
 
-```markdown
 
 ## Social Media Information!
 I am only on instagram, and my account name is 'whynotbcihatesnakeu'
