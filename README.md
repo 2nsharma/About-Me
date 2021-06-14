@@ -24,7 +24,9 @@ I like staying at home with my dog, which is why I am a homebody. If anyone aske
 
 ![Rainy Days](https://i.ytimg.com/vi/x7SQaDTSrVg/maxresdefault.jpg)
 
-Speaking about calming things, another weird fact about me is that I have recently gotten into tarot. I have no clue why, but it is absolutely soothing, especially when  hearing someone talk about the possibilities of youu present situation. Tarot reading, while bogus for many, is a reminder for me that the power to decide your future is only within your hands. It is the sounds of cards being shuffled, nails tapping the tarot cards midst thought, that calm my racing thoughts
+Speaking about calming things, another weird fact about me is that I have recently gotten into tarot. I have no clue why, but it is absolutely soothing, especially when  hearing someone talk about the possibilities of youu present situation. Tarot reading, while bogus for many, is a reminder for me that the power to decide your future is only within your hands. It is the sounds of cards being shuffled, nails tapping the tarot cards midst thought, that calm my racing thoughts.
+
+![Tarot](https://upload.wikimedia.org/wikipedia/commons/thumb/0/02/Priyanka_Sharma_Traot_Card_Reader_Rajathan.jpg/440px-Priyanka_Sharma_Traot_Card_Reader_Rajathan.jpg)
 
 ## Social Media Information!
 I am only on instagram, and my account name is 'whynotbcihatesnakeu.'
