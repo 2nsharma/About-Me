@@ -56,7 +56,7 @@ I am actually not a fan of American songs for some reason. I am a fan of K-pop, 
 
 - **Baking cakes and cookies!**
 
-I have gotten into baking different kinds of cakes of varying flavors. I have tried orange cakes, chocolate cakes, pineapple cakes, lemon cakes, red-velvet cakes, strawberry cakes, vanilla cakes so far. I hope to find more time to experiment with other kinds of cakes. Maybe something like a _caramel cake or a blueberry cake--something unique--would be my next baked treat_.
+I have gotten into baking different kinds of cakes of varying flavors. I have tried orange cakes, chocolate cakes, pineapple cakes, lemon cakes, red-velvet cakes, strawberry cakes, and vanilla cakes so far. I hope to find more time to experiment with other kinds of cakes. Maybe something like a _caramel cake or a blueberry cake--something unique--would be my next baked treat_.
 
 ![Cakes](https://images.unsplash.com/photo-1495147466023-ac5c588e2e94?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
