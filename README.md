@@ -14,8 +14,7 @@ I am a homebody, which I why home is my favorite place in the world. I dislike t
 ## Social Media Information!
 I am only on instagram, and my account name is 'whynotbcihatesnakeu'
 
-This is **me!**
-![Me](https://user-images.githubusercontent.com/84788749/121830518-36685c80-cc93-11eb-9591-1074c6130d1e.png) 
+
 ### My Hobbies
 
 1. **Playing tennis**
@@ -26,6 +25,8 @@ This is **me!**
 3. **Baking cakes and cookies!**
 [Link](url) and ![Image](src)
 
+This is **me!**
+![Me](https://user-images.githubusercontent.com/84788749/121830518-36685c80-cc93-11eb-9591-1074c6130d1e.png) 
 
 **Bold** and _Italic_ and `Code` text
 
