@@ -2,7 +2,8 @@
 (_note: the images I use are from **unsplash.com,** which has the internet's source of freely-usable images_)  
 
 Hello! My name is **Nayana Sharma** and I am a junior at EBHS high school! I am excited to talk about myself so you can know me better!
-_This is me:_
+
+_Here is a picture of me:_
 
 ![Me](https://static.wixstatic.com/media/ff19a8_6f5c601ad22845f784b257dc77d539bc~mv2.jpg/v1/fill/w_407,h_242,al_c,q_80,usm_0.66_1.00_0.01/IMG_0634_edited_edited.webp)
 
