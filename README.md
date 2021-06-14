@@ -32,7 +32,8 @@ Speaking about calming things, another weird fact about me is that I have recent
 ![Tarot](https://images.unsplash.com/photo-1607773709367-06b7a91f7e4a?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
 ## Social Media Information!
-I am only on instagram, and my account name is **'whynotbcihatesnakeu.'** It is a random name I came up with. The "why not" part is based off of my belief that you can do anything if you ask yourself _"why not?"_ The "ihatesnakeu" part is just some silly phrase I put together.
+I am only on instagram, and my account name is: **whynotbcihatesnakeu.** 
+It is a random name I came up with. The "why not" part is based off of my belief that you can do anything if you ask yourself _"why not?"_ The "ihatesnakeu" part is just some silly phrase I put together.
 
 ### My Hobbies
 
