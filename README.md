@@ -18,7 +18,7 @@ This is **my dog Chikoo**, by the way:
 
 ![My Dog](https://www.ebknows.com/wp-content/uploads/2019/09/cavachon-puppy.jpg)
 
-His name is based off of an Indian fruit called chikoo, which is brown and fuzzy on the outside, soft in the inside. In the same way, my dog has fuzzy fur and is the kindest, and most friendly dog ever. 
+His name is based off of an Indian fruit called chikoo, which is brown and fuzzy on the outside, soft in the inside. In the same way, my dog has fuzzy fur and is the kindest dog ever. 
 
 I like staying at home with my dog, which is why I am a homebody. If anyone asked me about my favorite place in the world, it would be my home. I dislike traveling for that very reason--especially trips involving long car rides and flights via airplanes. At home, when the skies are dark and filled with rainy clouds, the sounds of thunder rumble as rain patters across my bedroom windows. it is then when I feel like I am at peace with my thoughts and emotions. I absolutely love rain, contrary to the feelings of dreariness, misery, as well as melancholy associated with rain showers. The truth is that rain is both calming and cooling. 
 
@@ -32,27 +32,29 @@ I am only on instagram, and my account name is 'whynotbcihatesnakeu.'
 ### My Hobbies
 
 1. **Playing Tennis**
-I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is where you brush yoru racket along the side, effectively changing the spin and bounce of the ball.
 
 ![Slice move](https://media1.tenor.com/images/6251acbca0a00ee292544cebd3293e40/tenor.gif?itemid=18657032)
 
+I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is where you brush yoru racket along the side, effectively changing the spin and bounce of the ball.
+
 2. **Learning songs in different languages!**
-[Link](url) and ![Image](src)
+
+I am actually not a fan of American songs for some reason. I am a fan of K-pop, or Korean pop, which is basically music in the Korean language. My favorite boy bands from this genre would be BTS, and Stray Kids, who have a wide range of songs that are catchy and actually have touching songs, thought-provoking lyrics, which I look for when listening to music.
+
+![BTS Logo](https://wallpaperaccess.com/full/3191385.jpg)
+![Stray Kids Logo](https://i.pinimg.com/originals/88/12/72/881272bc899c59771fc6884f3c5a9347.jpg)
+
 
 3. **Baking cakes and cookies!**
-[Link](url) and ![Image](src)
 
-This is **me!**
+I have gotten into baking different kinds of cakes of varying flavors. I have tried orange cakes, chocolate cakes, pineapple cakes, lemon cakes, red-velvet cakes, strawberry cakes, vanilla cakes so far. I hope to find more time to experiment with other kinds of cakes. Maybe something like a caramel cake or a blueberry cake--something unique--would be my next baked treat.
 
-**Bold** and _Italic_ and `Code` text
+![Cakes](https://images.immediate.co.uk/production/volatile/sites/30/2020/08/cake-main-f2de8b7.jpg?quality=90&resize=385%2C350)
 
+For cookies, I have only tried vanilla, nutmeg, coconut chocolate-chip, and lemon cookies. I want to try different cookies, of course (who wouldn't?), perhaps M&M cookies or macaron cookies. 
 
-```
+![Cookies](quality=90&resize=385%2C350)https://www.bettycrocker.com/-/media/Images/BC/content/menus-holidays-parties/recipes/types-of-cookies/cookies_hero.jpg)
 
+### Thank you for reaching the end!
 
-
-### This is **me!**
-![Me](https://user-images.githubusercontent.com/84788749/121830518-36685c80-cc93-11eb-9591-1074c6130d1e.png) 
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Thank you for reading this page about me! I hope my writing hasn't been interesting, but rather, an interesting outlook on me.
