@@ -13,7 +13,7 @@ I am a perfectionist at heart because I enjoy doing my very best to achieve the 
 I am only on instagram, and my account name is 'whynotbcihatesnakeu'
 
 This is **me!**
-![Uploading image.png…]()
+![image](https://user-images.githubusercontent.com/84788749/121830689-8fd08b80-cc93-11eb-8e89-f7a84ef2d31f.png)
 
 ### My Hobbies
 
