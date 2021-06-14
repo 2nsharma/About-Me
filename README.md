@@ -1,5 +1,5 @@
 ## Welcome to My Website!
-(_note: the images I use are from **unsplash.com** which has the internet's source of freely-usable images_)  
+(_note: the images I use are from **unsplash.com,** which has the internet's source of freely-usable images_)  
 
 Hello! My name is **Nayana Sharma** and I am a junior at EBHS high school! I am excited to talk about myself so you can know me better!
 
@@ -37,7 +37,7 @@ I am only on instagram, and my account name is **'whynotbcihatesnakeu.'** It is 
 
 ![Playing Tennis](https://images.unsplash.com/photo-1558365849-6ebd8b0454b2?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
-I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is where you brush your racket along the side, effectively changing the spin and bounce of the ball. 
+I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is when you brush your racket along the side, effectively changing the spin and bounce of the ball. 
 
 Here is an example:
 
