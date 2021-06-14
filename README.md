@@ -48,7 +48,6 @@ I am actually not a fan of American songs for some reason. I am a fan of K-pop, 
 ![BTS Logo](https://wallpaperaccess.com/full/3191385.jpg)
 ![Stray Kids Logo](https://i.pinimg.com/originals/88/12/72/881272bc899c59771fc6884f3c5a9347.jpg)
 
-
 3. **Baking cakes and cookies!**
 
 I have gotten into baking different kinds of cakes of varying flavors. I have tried orange cakes, chocolate cakes, pineapple cakes, lemon cakes, red-velvet cakes, strawberry cakes, vanilla cakes so far. I hope to find more time to experiment with other kinds of cakes. Maybe something like a caramel cake or a blueberry cake--something unique--would be my next baked treat.
