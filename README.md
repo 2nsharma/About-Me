@@ -3,7 +3,7 @@
 
 Hello! My name is **Nayana Sharma** and I am a junior at EBHS high school! I am excited to talk about myself so you can know me better!
 
-The school year is soon ending, summer is arriving and finally, my junior year of high school is coming to a close. A new chapter is opening up in my life, but first -- this website will detail my accomplishments and hobbies-- and more about me!
+The school year is soon ending, summer is arriving and finally, my junior year of high school is coming to a close. A new chapter is opening up in my life, but first -- this website will detail my accomplishments and hobbies -- and more about me!
 
 
 ###                                                     Who Am I? Some Random Facts!
