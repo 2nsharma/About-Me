@@ -1,5 +1,5 @@
 ## Welcome to My Website!
-(note: the images I use are from _unsplash.com_ which has the internet's source of freely-usable images.)  
+(_note: the images I use are from **unsplash.com** which has the internet's source of freely-usable images_)  
 
 Hello! My name is **Nayana Sharma** and I am a junior at EBHS high school! I am excited to talk about myself so you can know me better!
 
@@ -10,9 +10,9 @@ The school year is soon ending, summer is arriving and finally, my junior year o
 
 ![Me](https://images.unsplash.com/photo-1554497342-902a4f8da8ed?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=3900&q=80)
 
-I am a perfectionist at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is a year when I have been learning to get in touch with myself. 
+I am a _perfectionist_ at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is a year when I have been learning to get in touch with myself. 
 
-In other words, I've been trying to reduce my stress, and high expectations and pressure I put on myself, by playing with my dog, Chikoo.
+In other words, I've been trying to reduce my stress, and high expectations and pressure I put on myself, by playing with **my dog, Chikoo.**
 
 This is **my dog Chikoo**, by the way:
 
@@ -20,11 +20,11 @@ This is **my dog Chikoo**, by the way:
 
 His name is based off of an Indian fruit called chikoo, which is brown and fuzzy on the outside, soft in the inside. In a similar manner, my dog has fuzzy fur and is the kindest dog ever. 
 
-I like staying at home with my dog, which is why I am a homebody. If anyone asked me about my favorite place in the world, it would be my home. I dislike traveling because of the time away from home, a reason that is important to my life--especially trips involving long car rides and flights via airplanes. At home, when the skies are dark and filled with rainy clouds, the sounds of thunder rumble as rain patters across my bedroom windows. it is then when I feel like I am at peace with my thoughts and emotions. I absolutely love rain, contrary to the feelings of dreariness, misery, as well as melancholy associated with rain showers. The truth is that rain is both calming and cooling. 
+I like staying at home with my dog, which is why I am a _homebody_. If anyone asked me about my favorite place in the world, it would be my home. I dislike traveling because of the time away from home, a reason that is important to my life--especially trips involving long car rides and flights via airplanes. At home, when the skies are dark and filled with rainy clouds, the sounds of thunder rumble as rain patters across my bedroom windows. it is then when I feel like I am at peace with my thoughts and emotions. I absolutely love rain, contrary to the feelings of dreariness, misery, as well as melancholy associated with rain showers. The truth is that rain is both calming and cooling. 
 
 ![Rainy Days](https://images.unsplash.com/photo-1564314968303-86c5df2b9a4c?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=935&q=80)
 
-Speaking about calming things, another weird fact about me is that I have recently gotten into tarot. I have no clue why, but it is absolutely soothing, especially when  hearing someone talk about the possibilities of youu present situation. Tarot reading, while bogus for many, is a reminder for me that the power to decide your future is only within your hands. It is the sounds of cards being shuffled, nails tapping the tarot cards midst thought, that calm my racing thoughts.
+Speaking about calming things, another weird fact about me is that I have recently gotten into tarot readings. I have no clue why, but it is an absolutely soothing activity, especially when hearing someone talk about the possibilities of youu present situation. Tarot reading, while bogus for many, is a reminder for me that the power to decide your future is only within your hands. It is the sounds of cards being shuffled, nails tapping the tarot cards midst thought, that calm my racing thoughts.
 
 ![Tarot](https://images.unsplash.com/photo-1607773709367-06b7a91f7e4a?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
