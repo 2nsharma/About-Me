@@ -37,7 +37,7 @@ I am only on instagram, and my account name is **'whynotbcihatesnakeu.'** It is 
 
 ![Playing Tennis](https://images.unsplash.com/photo-1558365849-6ebd8b0454b2?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
-I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is when you brush your racket along the side, effectively changing the spin and bounce of the ball. 
+I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand up to my favorite move. My favorite move is called the _slice._ This is when you brush your racket along the side, _effectively changing the spin and bounce of the ball_. 
 
 Here is an example:
 
