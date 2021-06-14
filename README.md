@@ -2,6 +2,9 @@
 (_note: the images I use are from **unsplash.com,** which has the internet's source of freely-usable images_)  
 
 Hello! My name is **Nayana Sharma** and I am a junior at EBHS high school! I am excited to talk about myself so you can know me better!
+_This is me:_
+
+![Me](https://static.wixstatic.com/media/ff19a8_6f5c601ad22845f784b257dc77d539bc~mv2.jpg/v1/fill/w_407,h_242,al_c,q_80,usm_0.66_1.00_0.01/IMG_0634_edited_edited.webp)
 
 The school year is soon ending, summer is arriving and finally, my junior year of high school is coming to a close. A new chapter is opening up in my life, but first -- this website will detail my accomplishments and hobbies -- and more about me!
 
@@ -60,9 +63,6 @@ For cookies, I have only tried vanilla, nutmeg, coconut chocolate-chip, and lemo
 ![M&M cookies](https://images.unsplash.com/photo-1590080875897-b7b65b2f73d7?ixlib=rb 1.2.1&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1384&q=80)
 
 ![Macaron cookies](https://images.unsplash.com/photo-1528503908550-8a048b6b4312?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
-
-- **On an abrupt ending note, this is me**
-![Me](https://static.wixstatic.com/media/ff19a8_6f5c601ad22845f784b257dc77d539bc~mv2.jpg/v1/fill/w_407,h_242,al_c,q_80,usm_0.66_1.00_0.01/IMG_0634_edited_edited.webp)
 
 ### Thank you for reaching the end!
 
