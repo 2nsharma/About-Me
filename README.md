@@ -20,16 +20,16 @@ This is **my dog Chikoo**, by the way:
 
 His name is based off of an Indian fruit called chikoo, which is brown and fuzzy on the outside, soft in the inside. In a similar manner, my dog has fuzzy fur and is the kindest dog ever. 
 
-I like staying at home with my dog, which is why I am a _homebody_. If anyone asked me about my favorite place in the world, it would be my home. I dislike traveling because of the time away from home, a reason that is important to my life--especially trips involving long car rides and flights via airplanes. At home, when the skies are dark and filled with rainy clouds, the sounds of thunder rumble as rain patters across my bedroom windows. it is then when I feel like I am at peace with my thoughts and emotions. I absolutely love rain, contrary to the feelings of dreariness, misery, as well as melancholy associated with rain showers. The truth is that rain is both calming and cooling. 
+I like staying at home with my dog, which is why I am a _homebody_. If anyone asked me about my favorite place in the world, it would be my home. I dislike traveling because of the time away from home, a reason that is important to my life--especially trips involving long car rides and flights via airplanes. At home, when the skies are dark and filled with rainy clouds, the sounds of thunder rumble as rain patters across my bedroom windows, it is then when I feel like I am at peace with my thoughts and emotions. _I absolutely love rain_, contrary to the feelings of dreariness, misery, as well as melancholy associated with rain showers. The truth is that rain is both calming and cooling. 
 
 ![Rainy Days](https://images.unsplash.com/photo-1564314968303-86c5df2b9a4c?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=935&q=80)
 
-Speaking about calming things, another weird fact about me is that I have recently gotten into tarot readings. I have no clue why, but it is an absolutely soothing activity, especially when hearing someone talk about the possibilities of youu present situation. Tarot reading, while bogus for many, is a reminder for me that the power to decide your future is only within your hands. It is the sounds of cards being shuffled, nails tapping the tarot cards midst thought, that calm my racing thoughts.
+Speaking about calming things, another weird fact about me is that I have recently gotten into _tarot readings_. I have no clue why, but it is an absolutely soothing activity, especially when hearing someone talk about the possibilities of youu present situation. Tarot reading, while bogus for many, is a reminder for me that the power to decide your future is only within your hands. It is the sounds of cards being shuffled, nails tapping the tarot cards midst thought, that calm my racing thoughts.
 
 ![Tarot](https://images.unsplash.com/photo-1607773709367-06b7a91f7e4a?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
 ## Social Media Information!
-I am only on instagram, and my account name is 'whynotbcihatesnakeu.'
+I am only on instagram, and my account name is **'whynotbcihatesnakeu.'** It is a random name I came up with. The "why not" part is based off of my belief that you can do anything if you ask yourself "why not?" The "ihatesnakeu" part is just some silly phrase I put together._
 
 ### My Hobbies
 
