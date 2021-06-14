@@ -33,7 +33,7 @@ I am only on instagram, and my account name is **'whynotbcihatesnakeu.'** It is 
 
 ### My Hobbies
 
- 1.**Playing Tennis**
+- **Playing Tennis**
 
 ![Playing Tennis](https://images.unsplash.com/photo-1558365849-6ebd8b0454b2?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
@@ -43,14 +43,14 @@ Here is an example:
 
 ![Slice move](https://media1.tenor.com/images/6251acbca0a00ee292544cebd3293e40/tenor.gif?itemid=18657032)
 
- 2.**Learning songs in different languages!**
+- **Learning songs in different languages!**
 
 I am actually not a fan of American songs for some reason. I am a fan of K-pop, or Korean pop, which is basically music in the Korean language. My favorite boy bands from this genre would be **BTS, and Stray Kids**, who have a wide range of songs that are catchy and actually have touching songs, thought-provoking lyrics, which I look for when listening to music.
 
 ![BTS Logo](https://wallpaperaccess.com/full/3191385.jpg)
 ![Stray Kids Logo](https://i.pinimg.com/originals/88/12/72/881272bc899c59771fc6884f3c5a9347.jpg)
 
- 3.**Baking cakes and cookies!**
+- **Baking cakes and cookies!**
 
 I have gotten into baking different kinds of cakes of varying flavors. I have tried orange cakes, chocolate cakes, pineapple cakes, lemon cakes, red-velvet cakes, strawberry cakes, vanilla cakes so far. I hope to find more time to experiment with other kinds of cakes. Maybe something like a _caramel cake or a blueberry cake--something unique--would be my next baked treat_.
 
