@@ -8,7 +8,7 @@ The school year is soon ending, summer is arriving and finally, my junior year o
 
 ###                                                     Who Am I? Some Random Facts!
 
-![Me](https://user-images.githubusercontent.com/84788749/121834213-2ef98100-cc9c-11eb-8852-9afc370e5165.png)
+![Me](https://images.unsplash.com/photo-1554497342-902a4f8da8ed?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=3900&q=80)
 
 I am a perfectionist at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is a year when I have been learning to get in touch with myself. 
 
@@ -22,11 +22,11 @@ His name is based off of an Indian fruit called chikoo, which is brown and fuzzy
 
 I like staying at home with my dog, which is why I am a homebody. If anyone asked me about my favorite place in the world, it would be my home. I dislike traveling because of the time away from home, a reason that is important to my life--especially trips involving long car rides and flights via airplanes. At home, when the skies are dark and filled with rainy clouds, the sounds of thunder rumble as rain patters across my bedroom windows. it is then when I feel like I am at peace with my thoughts and emotions. I absolutely love rain, contrary to the feelings of dreariness, misery, as well as melancholy associated with rain showers. The truth is that rain is both calming and cooling. 
 
-![Rainy Days](https://i.ytimg.com/vi/x7SQaDTSrVg/maxresdefault.jpg)
+![Rainy Days](https://images.unsplash.com/photo-1564314968303-86c5df2b9a4c?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=935&q=80)
 
 Speaking about calming things, another weird fact about me is that I have recently gotten into tarot. I have no clue why, but it is absolutely soothing, especially when  hearing someone talk about the possibilities of youu present situation. Tarot reading, while bogus for many, is a reminder for me that the power to decide your future is only within your hands. It is the sounds of cards being shuffled, nails tapping the tarot cards midst thought, that calm my racing thoughts.
 
-![Tarot](https://upload.wikimedia.org/wikipedia/commons/thumb/0/02/Priyanka_Sharma_Traot_Card_Reader_Rajathan.jpg/440px-Priyanka_Sharma_Traot_Card_Reader_Rajathan.jpg)
+![Tarot](https://images.unsplash.com/photo-1607773709367-06b7a91f7e4a?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
 ## Social Media Information!
 I am only on instagram, and my account name is 'whynotbcihatesnakeu.'
@@ -35,9 +35,11 @@ I am only on instagram, and my account name is 'whynotbcihatesnakeu.'
 
 1. **Playing Tennis**
 
-![Slice move](https://media1.tenor.com/images/6251acbca0a00ee292544cebd3293e40/tenor.gif?itemid=18657032)
+![Playing Tennis](https://images.unsplash.com/photo-1558365849-6ebd8b0454b2?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
-I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is where you brush yoru racket along the side, effectively changing the spin and bounce of the ball.
+I first started playing tennis with my dad when I was six year sold. Since then, I have been playing tennis with him and have learned about the various techniques used. The usual forehands and backhands used don't stand to my favorite move. It is called the _slice._ This is where you brush your racket along the side, effectively changing the spin and bounce of the ball. Here is an example:
+
+![Slice move](https://media1.tenor.com/images/6251acbca0a00ee292544cebd3293e40/tenor.gif?itemid=18657032)
 
 2. **Learning songs in different languages!**
 
@@ -51,11 +53,13 @@ I am actually not a fan of American songs for some reason. I am a fan of K-pop, 
 
 I have gotten into baking different kinds of cakes of varying flavors. I have tried orange cakes, chocolate cakes, pineapple cakes, lemon cakes, red-velvet cakes, strawberry cakes, vanilla cakes so far. I hope to find more time to experiment with other kinds of cakes. Maybe something like a caramel cake or a blueberry cake--something unique--would be my next baked treat.
 
-![Cakes](https://images.immediate.co.uk/production/volatile/sites/30/2020/08/cake-main-f2de8b7.jpg?quality=90&resize=385%2C350)
+![Cakes](https://images.unsplash.com/photo-1495147466023-ac5c588e2e94?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=934&q=80)
 
 For cookies, I have only tried vanilla, nutmeg, coconut chocolate-chip, and lemon cookies. I want to try different cookies, of course (who wouldn't?), perhaps M&M cookies or macaron cookies. 
 
-![Cookies](quality=90&resize=385%2C350)https://www.bettycrocker.com/-/media/Images/BC/content/menus-holidays-parties/recipes/types-of-cookies/cookies_hero.jpg)
+![M&M Cookies](https://images.unsplash.com/photo-1590080875897-b7b65b2f73d7?ixlib=rb 1.2.1&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1384&q=80)
+
+![Macaron Cookies](https://images.unsplash.com/photo-1597905733802-7bec89b471b6ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=2250&q=80)
 
 ### Thank you for reaching the end!
 
