@@ -18,7 +18,7 @@ This is **my dog Chikoo**, by the way:
 
 ![My Dog](https://www.ebknows.com/wp-content/uploads/2019/09/cavachon-puppy.jpg)
 
-His name is based off of an Indian fruit called chikoo, which is brown and fuzzy on the outside, soft in the inside. In the same way, my dog has fuzzy fur and is the kindest dog ever. 
+His name is based off of an Indian fruit called chikoo, which is brown and fuzzy on the outside, soft in the inside. in a similar manner, my dog has fuzzy fur and is the kindest dog ever. 
 
 I like staying at home with my dog, which is why I am a homebody. If anyone asked me about my favorite place in the world, it would be my home. I dislike traveling for that very reason--especially trips involving long car rides and flights via airplanes. At home, when the skies are dark and filled with rainy clouds, the sounds of thunder rumble as rain patters across my bedroom windows. it is then when I feel like I am at peace with my thoughts and emotions. I absolutely love rain, contrary to the feelings of dreariness, misery, as well as melancholy associated with rain showers. The truth is that rain is both calming and cooling. 
 
