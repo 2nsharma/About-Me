@@ -3,21 +3,21 @@
 Hello! My name is Nayana Sharma and I am a junior at EBHS high school! I am excited to talk about myself so you can know me better!
 
 The school year is soon ending, summer is arriving and finally, my junior year of high school is coming to a close. A new chapter is opening up in my life, but first -- this website will detail my accomplishments and hobbies-- and more about me!
+
 ###                                                             Who am I?
 
 I am a perfectionist at heart because I enjoy doing my very best to achieve the highest quality in all kinds of work--whether it be schoolwork or hobbies. But I've been trying to change myself, operating beyond my ego and need for validation from others. I must say that this year has been a rollercoaster, full of highs and lows. Junior year is the time when I have been learning to get in touch with myself.
 ```markdown
 
-# A Picture of Me!
-[image](https://user-images.githubusercontent.com/84788749/121828014-3add4700-cc8c-11eb-94d8-3136f220fe93.png
-
 ## Social Media Information!
 I am only on instagram, and my account name is 'whynotbcihatesnakeu'
+
+This is **me!**
+![Uploading image.png…]()
 
 ### My Hobbies
 
 1. **Playing tennis**
-[Uploading image.png…]
 
 2. **Learning songs in different languages!**
 [Link](url) and ![Image](src)
