@@ -1,5 +1,5 @@
 ## Welcome to My Website!
-
+(note: the images I use are from unsplash.com, which has the internet's source of freely-usable images.)  
 
 Hello! My name is **Nayana Sharma** and I am a junior at EBHS high school! I am excited to talk about myself so you can know me better!
 
